@@ -1,4 +1,4 @@
-### Hi there I'm Anish Rao Kotha 👋
+### Hi there I'm Anish Rao Kotha 
 
 
 - 🔭 I’m currently working on improving my coding skills
